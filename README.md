@@ -1,4 +1,4 @@
-# Dice Dreams Free Rolls - Updated Daily: Unlock Your Free Spins Now!
+# Dice Dreams Free Rolls - Updated Daily: Unlock Your Free Rolls Now!
 
 Are you ready to take your Dice Dreams gaming experience to the next level? Imagine enjoying free rolls every day, with no strings attached! Well, your wish is about to come true. In 2025, Dice Dreams offers an incredible daily opportunity to get free rolls, and all you need to do is accept this free offer!
 
